@@ -24,5 +24,5 @@ We hope that our work proves valuable to both newcomers and seasoned users of Gr
 If you have any questions, feedback, or suggestions, please don't hesitate to reach out. I greatly appreciate your interest in our graduation project.
 
 Maryem Aloulou \\
-maryamaloulou.ma@gmail.com \\
+maryamaloulou2001@gmail.com \\
 2023
